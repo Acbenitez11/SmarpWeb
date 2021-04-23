@@ -2,6 +2,11 @@
 
 - Integrantes
 
-1. Paula Andrea Ochoa Ochoa
-2. Andres Camilo Benitez Rodiño
-3. Sandra Milena Morales polo
+1.  SANDRA MILENA MORALES POLO
+2.  PAULA ANDREA OCHOA OCHOA 
+3.  ANDRES CAMILO BENITEZ RODIÑO
+
+- Docente 
+
+1. ALEXANDER ENRIQUE TOSCANO RICARDO
+
